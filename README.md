@@ -1,14 +1,21 @@
 # Mulang-
-吾日三省吾身 爱车加油如何省？护理养车如何省？酒后代驾如何省？
-油价背刺不停歇
-今天加完明天跌
+I'll do my best to provide you with a translation that maintains the rhythm and flow of the original Chinese text:
 
-省钱加油求妙招
-交行车主卡支招
-5折加油，羊毛高手
+I reflect on myself thrice a day,
+How can I save on gas without delay?
+How can I maintain my car with ease?
+And how can I avoid drunk driving fees?
 
-多省不止三克油
-省杯咖啡THANK YOU
+The price of gas is a constant betrayal,
+Today it's up, tomorrow it may fail.
 
-交行车主卡
-一卡在手，轻松三省
+To save on gas, I seek a clever way,
+The ICBC card offers tips, they say.
+With a 50% discount, it's a smart move,
+For saving money on gas, they approve.
+
+Saving more than just a few drops of fuel,
+A cup of coffee from ICBC, it's cool.
+ 
+With the ICBC card in hand,
+Three provinces are easy to command.
